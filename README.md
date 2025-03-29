@@ -1,2 +1,1 @@
-https://www.mediafire.com/file/cgetfnpq95wj1v4/Phong_Roblox_Login_VNG_V2.665.apk/file
-https://www.mediafire.com/file/3o1u03bsvfzb2ig/Delta_X_VNG_V2.665_Fix_%25E2%2580%2594_Phong_Roblox.apk/file?dkey=ns6h5koepcd&r=135
+https://www.mediafire.com/file/b35vnohf7jvi6bg/Krnl+Vng+V2.665+Ch%C3%ADnh+Th%E1%BB%A9c+%E2%80%94+Phong+Roblox.apk/file?dkey=lhatznairch&r=955
